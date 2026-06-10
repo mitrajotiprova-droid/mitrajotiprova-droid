@@ -7,7 +7,7 @@ Email Me 👉 ✉️ **mitrajotiprova@gmail** For Collaboration/Project or Anyth
 * 🌱 **I’m currently learning:** Docker
 * 👯 **I’m looking to collaborate on:** ALIS
 * 📫 **How to reach me:** mitrajotiprova@gmail.com
-* 😄 **Pronouns:** Joti
+* 😄 **Pronouns:** JOTI
 * ⚡ **Fun fact:** I Love Tech and Tech Love Me
 # 💫 About Me:
 💻 CSE Student<br>🚀 Passionate about Coding & Technology<br>🌱 Currently learning Full-Stack Development<br>🧩 DSA | DBMS | OOP | OS<br>⚡ Building projects and improving every day
