@@ -6,7 +6,6 @@ Email Me 👉 ✉️ **mitrajotiprova@gmail** For Collaboration/Project or Anyth
 * 🔭 **I’m currently working on:** Adaptive Learning Intelligent System
 * 🌱 **I’m currently learning:** Docker
 * 👯 **I’m looking to collaborate on:** ALIS
-* 🤔 **I’m looking for help with:** Your project here
 * 📫 **How to reach me:** mitrajotiprova@gmail.com
 * 😄 **Pronouns:** Joti
 * ⚡ **Fun fact:** I Love Tech and Tech Love Me
