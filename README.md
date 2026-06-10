@@ -1,7 +1,7 @@
 # 💫 Hi 👋, I'm JOTIPROVA 
 **A passionate Computer Science Engineer ||**
 
-Email Me 👉 ✉️ **mitrajotiprova@gmail** For Collaboration/Project or Anything Else. 😊😊
+Email Me 👉 ✉️ **mitrajotiprova@gmail** For Collaboration/Project or Anything Else. 😊
 
 * 🔭 **I’m currently working on:** Adaptive Learning Intelligent System
 * 🌱 **I’m currently learning:** Docker
