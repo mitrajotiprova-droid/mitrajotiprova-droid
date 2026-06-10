@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm JOTIPROVA MITRA
-**A passionate Computer Engineer ||**
+**A passionate Computer Science Engineer ||**
 
 Email Me 👉 ✉️ **mitrajotiprova@gmail** For Collaboration/Project or Anything Else. 😊😊
 
