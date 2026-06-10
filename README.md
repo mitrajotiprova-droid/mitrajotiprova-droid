@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm JOTIPROVA MITRA
+# 💫 Hi 👋, I'm JOTIPROVA 
 **A passionate Computer Science Engineer ||**
 
 Email Me 👉 ✉️ **mitrajotiprova@gmail** For Collaboration/Project or Anything Else. 😊😊
